@@ -1,1 +1,1 @@
-I like shiba ver much
+I like shiba very much
